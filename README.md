@@ -1,6 +1,7 @@
 # Induction-demo
 
 Day 1
+
 My first day at the GNDEC started with all the CSE and IT students 
 assembling in the Gurdwara Sahib 
 After the Kirtan we eat some food.
