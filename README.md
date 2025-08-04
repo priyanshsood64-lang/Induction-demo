@@ -52,4 +52,24 @@ The session came to an end around
 3 PM and we wnet to our hostels.
 After taking some rest i went to my home and this was my third day in the GNDEC LUDHIANA.
 
+Day 4
+
+On my fourth day in a college 
+i wake up early in the morning 
+and have breakfast around 8 AM.
+After that i went to my classroom,
+my first lecture was of chemistry 
+professor Rajvir kaur she told us about our chemistry syllabus and 
+she motivated us to study and she introduced our class to senior students.
+
+After finishing my chemistry class 
+my second lecture was of P2P,
+it was new subject for me our seniors helped us. They taught our class about c++. 
+
+At 12:30 PM i went to auditorium 
+for my lecture about human relationships and understanding,
+i learn many new things from this lecture. Our seniors entertained
+us by singing songs and poetry.
+
+
 
