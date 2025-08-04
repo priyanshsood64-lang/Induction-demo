@@ -18,6 +18,7 @@ them was"seize the opportunity,
 don't wait for it to come to you".
 
 Day 2
+
 On the second day i woke  up at 
 6 AM and after having breakfast 
 around 8 AM i went for my math and English test that was taken in the 
