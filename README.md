@@ -1,3 +1,3 @@
 # Induction-demo
 
-#Day 1
+Day 1
