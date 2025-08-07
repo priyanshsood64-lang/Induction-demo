@@ -25,7 +25,7 @@ around 8 AM i went for my math and English test that was taken in the
 classroom. 
 
 After the test we wnet to the auditorium. There our professors 
-Rakesh kumar, Ravindra garg sir
+Rakesh Kumar, Ravindra Garg sir
 and other senior teacher gave us some speeches on the discipline 
 and how to follow uor profession
 and stay motivated until we achieve 
@@ -59,7 +59,7 @@ i wake up early in the morning
 and have breakfast around 8 AM.
 After that i went to my classroom,
 my first lecture was of chemistry 
-professor Rajvir kaur she told us about our chemistry syllabus and 
+professor Rajvir Kaur she told us about our chemistry syllabus and 
 she motivated us to study and she introduced our class to senior students.
 
 After finishing my chemistry class 
@@ -70,6 +70,43 @@ At 12:30 PM i went to auditorium
 for my lecture about human relationships and understanding,
 i learn many new things from this lecture. Our seniors entertained
 us by singing songs and poetry.
+
+Day 5
+
+On fifth day of my college i woke up
+at 6 AM.After having breakfast i
+get ready for my classes.My first lecture started at 9:30 AM, it was
+lecture of English. our professor 
+Manjot kaur introduced herself 
+with all the students and told us 
+to give our intro one by one 
+coming in front of the class.
+
+Our second lecture was taken by professor Rajbir kaur she asked 
+the students formulas of basic mathematics we studied in our class 
+11th and 12th.
+
+Our third lecture was taken by professor Mandeep Kaur. she taught 
+us BEEE and the syllabus of BEEE.
+she taught us about DC Circuit,
+ohm's law, resistance, conductivity and resistivity etc. 
+
+Day 6
+
+On the sixth day i did yoga in the early morning and  exercise for my mental and physical health. Then i 
+started my day with meating my hostel mates. After that i went to my class at 9:30 AM it was lecture of P2P. Our seniors taught us about c++ coding with basics of 
+c++. 
+
+My second lecture was taken by professor Jaswant Singh. He taught us about data structures, coding and basics of computer.
+
+On 11:30 AM we got a break for relaxation. It was of an hour 
+i enjoyed my this time with my friends. After lunch break, Dr.
+Arvind Dhingara,Mr.Jasvir Singh Sekhon and Dr.Lakhvir Singh Khana
+taught us about a site called Swayam. In this site all courses 
+of every field available in low prices. 
+
+
+
 
 
 
