@@ -105,6 +105,22 @@ Arvind Dhingara,Mr.Jasvir Singh Sekhon and Dr.Lakhvir Singh Khana
 taught us about a site called Swayam. In this site all courses 
 of every field available in low prices. 
 
+Day 7
+
+On the seventh day i woke up early in the morning. Then i went to the auditorium hall.Our professors like Dr.Amit Kamra,Dr.Parminder 
+Singh and Dr.Randhir Singh gave us lectures about all the information 
+needed to be a good student of 
+our college with discipline and get good marks with hard work.
+Then our session of digital marketing started and our professor told us about projects
+to made with our editing skills 
+and knowledge. He showed us videos of our college made by our seniors
+and inspire us to follow them and there instructions.
+
+On 12:30 to 1:30 be have lunch break and our next class started after that it was a lecture of
+BEEE the professor taught us about the effect of temp on resistance,
+Network and classification of Network.
+
+
 
 
 
