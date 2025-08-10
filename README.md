@@ -120,8 +120,11 @@ On 12:30 to 1:30 be have lunch break and our next class started after that it wa
 BEEE the professor taught us about the effect of temp on resistance,
 Network and classification of Network.
 
+Day 8
 
+On the 8th day i went to my class on at the correct time so that i can attend my lecture and my first lecture was P2P take by our 3rd year seniors. They told us about our college clubs like CAUSMIC club, DMC club etc. Our chemistry   professor was late so she let our seniors take the lecture and the lecture was 9 AM to 12 PM
 
+At 12 PM our classes end and i     came to my hoatel room and after packing my bags i went back to my home.
 
 
 
